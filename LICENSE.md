@@ -1,4 +1,4 @@
-# 
+# Enhance ESET NOD32 for PC | ESET NOD32 for Windows with exclusive ESET NOD32 for PC | ESET NOD32 for Windows Addon | secure-browsing + quarantine-management, the #1 addon.
 
 
 
